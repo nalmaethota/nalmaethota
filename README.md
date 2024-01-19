@@ -1,6 +1,6 @@
 ನಮಸ್ಕಾರ ಎಲ್ಲರಿಗೂ (Namaskaara ellarigu) 🙏
 
-Welcome to our sustainable sanctuary, where nature and agriculture unite! 🚜 
+Welcome to our sustainable Farm, where nature and agriculture unite! 🚜 
 
 "Nalmae thota" 🌱 is a visonary project of Umakanthan with a goal to do organic farming and use best of the natural resources provided by Mother nature 🌾✨
 
